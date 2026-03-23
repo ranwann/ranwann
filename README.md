@@ -1,16 +1,16 @@
-## Hi there 👋
+mbti • isfp-t
+- I'm more talkative once you get to know me :P
 
-<!--
-**ranwann/ranwann** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+fandoms I'm in/been in • gacha life
+                       ‎• genshin impact
+                       ‎• roblox the mimic
+                       ‎• danmei
+                         etc.
 
-Here are some ideas to get you started:
+danmeis I've read so far • tgcf ✓
+                         • mdzs ✓
+                         • svsss ✓
+                         • qq ✓
+                         • erha - ongoing
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+erha.. hehhehdhdheh...
