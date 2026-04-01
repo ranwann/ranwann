@@ -3,4 +3,4 @@
 *- (artist is aya_tgcf on twt / X) -*
 - mbti ~ isfp-t
 - en • 中 • bm ✓
-- I'm more talkative once you get to know me :P
+- I'm barely just slightly more talkative once you get to know me :P
