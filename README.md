@@ -4,3 +4,4 @@
 - mbti ~ isfp-t
 - en • 中 • bm ✓
 - I'm barely just slightly more talkative once you get to know me :P
+- good listener but bad at comforting
