@@ -5,3 +5,4 @@
 - en • 中 • bm ✓
 - I'm barely just slightly more talkative once you get to know me :P
 - good listener but bad at comforting
+- probably afk (don't let that stop you from interacting tho!!)
