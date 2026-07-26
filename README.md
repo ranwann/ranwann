@@ -1,4 +1,4 @@
-# ***『 come sit and chill! >< 』***
+***『 come sit and chill! >< 』***
 
 *probably afk (don't let that stop you from interacting tho!!)*
 
