@@ -1,4 +1,5 @@
 ***『 come sit and chill! >< 』***
+*very welcome, fandom or not ^^*
 
 *probably afk (don't let that stop you from interacting tho!!)*
 
