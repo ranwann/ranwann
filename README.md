@@ -12,10 +12,10 @@
 - good listener but bad at comforting
 - very open to friend requests ^^
 
-# fandoms I’m in!! *(main ones)*
+# fandoms I’m in!!
 - danmei (erha, mxtx, qq • planning on reading more when I have the time..)
 - the mimic
 - genshin impact
 
-  I am in other fandoms, I'm just not as into them as the main ones. But I'll probably know if you mention them 'u'
+  I am in other fandoms, I'm just not as into them as the main ones above. But I'll probably know if you mention them 'u'
 
