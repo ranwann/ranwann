@@ -17,5 +17,5 @@
 - the mimic
 - genshin impact
 
-
   I am in other fandoms, I'm just not as into them as the main ones. But I'll probably know if you mention them 'u'
+
