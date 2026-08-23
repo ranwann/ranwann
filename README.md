@@ -7,15 +7,15 @@
 
 ***- (artist is @isaacinkyl on twt / X) -***
 - mbti ~ isfp-t • ambivert (? or omnivert.. idk man)
-- en · 中 · bm ✓ (or enderman; I had a phase...)
+- en · 中 · bm ✓
 - I'm barely just slightly more talkative once you get to know me :P
 - good listener but bad at comforting
 - very open to friend requests ^^
 
 # fandoms I’m in!!
-- danmei (erha, mxtx, qq • planning on reading more when I have the time..)
+- danmei (erha, mxtx, qq - planning on reading more when I have the time..)
 - the mimic
+- apothecary diaries
 - genshin impact
 
-  I am in other fandoms, I'm just not as into them as the main ones above. But I might know a bit if you mention them 'u'
-
+I am in other fandoms, I'm just not as into them as the main ones above. But I might know a bit if you mention them 'u'
