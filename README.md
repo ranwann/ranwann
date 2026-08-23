@@ -1,13 +1,13 @@
-***『 come sit and chill! >< 』***
+***『 come sit and chill!! >< 』***
 
-*probably afk (don't let that stop you from interacting tho!!)*
+*probably afk (don't let that stop you from interacting tho!)*
 
 # hi yes please [sign](https://ranwan.atabook.org) !!!
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/cnh_ranwan.png)
 
 ***- (artist is @isaacinkyl on twt / X) -***
 - mbti ~ isfp-t • ambivert (? or omnivert.. idk man)
-- en · 中 · bm ✓ (or enderman, I had a phase...)
+- en · 中 · bm ✓ (or enderman; I had a phase...)
 - I'm barely just slightly more talkative once you get to know me :P
 - good listener but bad at comforting
 - very open to friend requests ^^
