@@ -2,7 +2,7 @@
 
 *probably afk (don't let that stop you from interacting tho!)*
 
-# hi yes please [sign](https://ranwan.atabook.org) !!!
+# → hi yes please [sign](https://ranwan.atabook.org) !!!
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/cnh_ranwan.png)
 
 ***- (artist is @isaacinkyl on twt / X) -***
@@ -12,7 +12,7 @@
 - good listener but bad at comforting
 - very open to friend requests ^^
 
-# fandoms I’m in!!
+# → fandoms I’m in!!
 - danmei (erha, mxtx, qq • planning on reading more when I have the time..)
 - the mimic
 - genshin impact
