@@ -7,7 +7,7 @@
 
 ***- (artist is @isaacinkyl on twt / X) -***
 - mbti ~ isfp-t • ambivert (? or omnivert.. idk man)
-- en · 中 · bm ✓
+- en · 中 · bm ✓ (or enderman, I had a phase...)
 - I'm barely just slightly more talkative once you get to know me :P
 - good listener but bad at comforting
 - very open to friend requests ^^
