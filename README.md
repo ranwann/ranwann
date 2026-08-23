@@ -6,7 +6,7 @@
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/cnh_ranwan.png)
 
 ***- (artist is @isaacinkyl on twt / X) -***
-- mbti ~ isfp-t • ambivert
+- mbti ~ isfp-t • ambivert (? or omnivert.. idk man)
 - en · 中 · bm ✓
 - I'm barely just slightly more talkative once you get to know me :P
 - good listener but bad at comforting
