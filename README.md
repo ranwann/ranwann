@@ -3,13 +3,18 @@
 *probably afk (don't let that stop you from interacting tho!!)*
 
 # hi yes please sign :) [atabook](https://ranwan.atabook.org)
-![Image Alt](https://github.com/ranwann/ranwann/blob/e36012d9d14f7a9faedba1232aafc33d267b7faa/1000084577-removebg-preview_edit_2213742595456026.png)
+![Image Alt](https://github.com/ranwann/ranwann/blob/main/cnh_ranwan.png)
 
-*- (artist is aya_tgcf on twt / X) -*
+***- (artist is @isaacinkyl on twt / X) -***
 - mbti ~ isfp-t • ambivert
 - en · 中 · bm ✓
 - I'm barely just slightly more talkative once you get to know me :P
 - good listener but bad at comforting
 - very open to friend requests ^^
+
 # fandoms I’m in!! *(main ones)*
-**erha, mxtx, The Mimic, genshin impact**
+- danmei (erha, mxtx, qq • planning on reading more when I have the time..)
+- the mimic
+- genshin impact
+
+  I am in other fandoms, but I'm just not as into them as the main ones. But I'll probably know if you mention them 'u']
