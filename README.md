@@ -11,4 +11,5 @@
 - I'm barely just slightly more talkative once you get to know me :P
 - good listener but bad at comforting
 - very open to friend requests ^^
-- multifandom *(main ones)* **[erha, mxtx, The Mimic, genshin]**
+# fandoms I’m in!! *(main ones)*
+**erha, mxtx, The Mimic, genshin impact**
