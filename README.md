@@ -13,7 +13,7 @@
 - very open to friend requests ^^
 
 # fandoms I’m in!!
-- danmei (erha, mxtx, qq - planning on reading more when I have the time..)
+- danmei (erha, tgcf, mdzs, svsss, qq - planning on reading more when I have the time..)
 - the mimic
 - apothecary diaries
 - genshin impact
