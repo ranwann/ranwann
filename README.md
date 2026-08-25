@@ -15,7 +15,7 @@
 
 # fandoms I’m in!!
 - danmei (erha, tgcf, mdzs, svsss, qq - planning on reading more when I have the time..)
-- the mimic
+- the mimic (roblox)
 - apothecary diaries
 - genshin impact
 
