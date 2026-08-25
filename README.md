@@ -8,6 +8,7 @@
 ***- (artist is @isaacinkyl on twt / X) -***
 - mbti ~ isfp-t • ambivert
 - en · 中 · bm ✓
+- can barely hold conversations..
 - I'm barely just slightly more talkative once you get to know me :P
 - good listener but bad at comforting
 - very open to friend requests ^^
