@@ -20,3 +20,5 @@
 - genshin impact
 
 I am in other fandoms, I'm just not as into them as the main ones above. But I might know a bit if you mention them 'u'
+
+Also highkey where did all the danmei ponies go 😔🙏
