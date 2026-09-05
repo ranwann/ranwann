@@ -14,7 +14,7 @@
 - very open to friend requests ^^
 
 # fandoms I’m in!!
-- danmei [erha, tgcf, mdzs, svsss, qq, tyk *(only watched the movie as of now)* - planning on reading more when I have the time..]
+- danmei [erha, tgcf, mdzs, svsss, qq, tyk *(only watched the drama as of now)* - planning on reading more when I have the time..]
 - the mimic (roblox)
 - apothecary diaries
 - genshin impact
