@@ -22,7 +22,7 @@
 
 I am in other fandoms, I'm just not as into them as the main ones above. But I might know a bit if you mention them 'u'
 
-# some of my art :P
+# some of my art c:<
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/hualian%20rain.png)
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/weiwuxian.png)
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/%E8%88%9E%E5%B8%88.png)
