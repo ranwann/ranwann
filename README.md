@@ -20,7 +20,7 @@
 - apothecary diaries
 - genshin impact
 
-I am in other fandoms, I'm just not as into them as the main ones above. But I might know a bit if you mention them 'u'
+I *am* in other fandoms, I'm just not as into them as the main ones above. But I might know a bit if you mention them 'u'
 
 # some of my art that no one asked for
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/hualian%20rain.png)
