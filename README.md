@@ -12,7 +12,7 @@
 - I'm barely just slightly more talkative once you get to know me :P
 - good listener but bad at replies/comforting
 - very open to friend requests ^^
-- oh I draw sometimes :P
+- I draw sometimes
 
 # fandoms I’m in!!
 - danmei [erha, tgcf, mdzs, svsss, qq, tyk *(only watched the drama as of now)* - planning on reading more when I have the time..]
@@ -22,7 +22,7 @@
 
 I am in other fandoms, I'm just not as into them as the main ones above. But I might know a bit if you mention them 'u'
 
-# some of my art c:<
+# some of my art that no one asked for
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/hualian%20rain.png)
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/weiwuxian.png)
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/%E8%88%9E%E5%B8%88.png)
