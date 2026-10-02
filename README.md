@@ -17,7 +17,6 @@
 - danmei [erha, tgcf, mdzs, svsss, qq, tyk *(only watched the drama as of now)* - planning on reading more when I have the time..]
 - the mimic (roblox)
 - apothecary diaries
-- genshin impact
 
 I *am* in other fandoms, I'm just not as into them as the main ones above. But I might know a bit if you mention them 'u'
 
