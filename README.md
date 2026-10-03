@@ -11,7 +11,7 @@
 - I'm barely just slightly more talkative once you get to know me :P
 - good listener but bad at replies
 - very open to friend requests ^^
-- I draw sometimes
+- I draw sometimes * ***eyes your strawpage*** *
 
 # fandoms I’m in!!
 - danmei [erha, tgcf, mdzs, svsss, qq, tyk *(only watched the drama as of now)* - planning on reading more when I have the time..]
