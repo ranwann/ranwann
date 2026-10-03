@@ -12,6 +12,7 @@
 - good listener but bad at replies
 - very open to friend requests ^^
 - I draw sometimes * ***eyes your strawpage*** *
+- I'm kinda blind so like mb if I miss any messages or something :')
 
 # fandoms I’m in!!
 - danmei [erha, tgcf, mdzs, svsss, qq, tyk *(only watched the drama as of now)* - planning on reading more when I have the time..]
