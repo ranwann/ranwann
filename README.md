@@ -2,7 +2,7 @@
 
 *probably afk (don't let that stop you from interacting tho!)*
 
-# hi yes please [sign](https://ranwan.atabook.org) !!!
+# hi yes please [sign](https://ranwan.atabook.org) or [draw](https://ranwanht.straw.page/) !!!
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/cnh_ranwan.png)
 
 ***- (artist is @isaacinkyl on twt / X) -***
