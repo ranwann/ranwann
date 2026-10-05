@@ -1,6 +1,6 @@
 ***『 come sit and chill! >< 』***
 
-*probably afk (don't let that stop you from interacting tho!)*
+*I'm afk/offtab most of the time, don't let that stop you from interacting tho!*
 
 # hi please [sign](https://ranwan.atabook.org) or [draw](https://ranwanht.straw.page/) !!!
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/cnh_ranwan.png)
@@ -12,13 +12,13 @@
 - good listener but bad at replies
 - very open to friend requests ^^
 - I draw sometimes * ***eyes your strawpage*** *
-- I'm kinda blind so like mb if I miss any messages or something :')
+- I'm kinda *(correction, VERY..)* blind so mb if I miss any of your messages or something :')
 
 # fandoms I’m in!!
-- danmei [erha, tgcf, mdzs, svsss, qq, tyk *(only watched the drama as of now)* - planning on reading more when I have the time..]
+- danmei **[erha, tgcf, mdzs, svsss, qq, tyk** *(only watched the drama as of now)* - planning on reading more when I have the time..]
 - the mimic (roblox)
-- apothecary diaries
-- the yakuza's guide to babysitting *(S2 WHEN URGFHFHD)*
+- the apothecary diaries
+- the yakuza's guide to babysitting ***(S2 WHEN URGFHFHD IT'S BEEN 4 YEARS..)***
 
 I *am* in other fandoms, I'm just not as into them as the main ones above. But I might know a bit if you mention them 'u'
 
