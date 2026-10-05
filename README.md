@@ -18,7 +18,7 @@
 - danmei **[erha, tgcf, mdzs, svsss, qq, tyk** *(only watched the drama as of now)* **- planning on reading more when I have the time..]**
 - the mimic (roblox)
 - the apothecary diaries
-- the yakuza's guide to babysitting ***(S2 WHEN URGFHFHD IT'S BEEN 4 YEARS..)***
+- the yakuza's guide to babysitting ***(S2 WHEN URGFHFHD IT'S BEEN 4 YEARS...)***
 
 I *am* in other fandoms, I'm just not as into them as the main ones above. But I might know a bit if you mention them 'u'
 
