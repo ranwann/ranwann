@@ -2,6 +2,8 @@
 
 *I'm afk/offtab most of the time, don't let that stop you from interacting tho!*
 
+*I might randomly leave due to bad internet or I might've just fallen asleep/forgotten I had pony town on.. 🥀*
+
 # hi please [sign](https://ranwan.atabook.org) or [draw](https://ranwanht.straw.page/) !!!
 ![Image Alt](https://github.com/ranwann/ranwann/blob/main/cnh_ranwan.png)
 
